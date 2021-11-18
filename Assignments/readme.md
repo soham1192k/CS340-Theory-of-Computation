@@ -1,1 +1,1 @@
-### My submissions to the assignments
+### Assignments
